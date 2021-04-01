@@ -9,7 +9,7 @@
 ## Ingredients
 
 - 3 c flour (360 g)
-- 1 tbsp salt (20 g)
+- 1 tbsp salt (17 g)
 - 1/4 tsp instant yeast or 1.25/4 tsp active dry yeast (0.75/1 g)
 - 1 + 5/8 cups hot water (500 g)
 - Oven-safe pan
